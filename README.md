@@ -4,7 +4,7 @@
 - 💞️ I’m looking to find new angels
 - 📫 How to reach me jari.aho@forceagile.com 
 - 😄 Pronouns:
-- ⚡ Fun fact: Dpace is dangerous, especially the space between ones ears"
+- ⚡ Fun fact: Space is dangerous, especially the space between ones ears"
 
 <!---
 JahojariahoJaho/JahojariahoJaho is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
